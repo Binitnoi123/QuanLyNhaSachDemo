@@ -6,4 +6,5 @@ Vì đây là lần đầu bọn mình học cũng như thực hành làm 1 ph�
     Nhóm 6 - HIGHLIGHT
       <br />
     <br />
+  Đây là link fb của mình các bạn cứ nhắn tin góp ý nhé. Mình luôn sẵn sàng tiếp nhận ý kiến của các cậu
     <a href="https://www.facebook.com/binbin.ntg.0102021/">nguyentruonggiang on Facebook</a>
